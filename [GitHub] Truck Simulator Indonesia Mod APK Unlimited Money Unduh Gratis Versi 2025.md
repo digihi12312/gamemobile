@@ -15,4 +15,4 @@ Truck Simulator Indonesia Mod APK adalah versi modifikasi dari game simulasi men
 
 # 👉🔴 Download APK : https://modhello.net/games
 
-# 👉🔴 Download APK : ⬇️ https://tinyurl.com/4xdzdpd8 📲
+# 👉🔴 Download APK : ⬇️ https://modhello.net/truck-simulator-indonesia.html 📲
