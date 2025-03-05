@@ -15,4 +15,4 @@ I Am Security Mod APK adalah versi modifikasi dari game I Am Security, di mana p
 
 # 👉🔴 Download APK Sever 1 : https://modhello.net/games
 
-# 👉🔴 Download APK Sever 2  : ⬇️ https://tinyurl.com/4xdzdpd8 📲
+# 👉🔴 Download APK Sever 2  : ⬇️ https://modhello.net/i-am-security.html 📲
